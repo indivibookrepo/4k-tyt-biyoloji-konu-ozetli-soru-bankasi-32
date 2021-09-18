@@ -1,0 +1,1 @@
+# 4k-tyt-biyoloji-konu-ozetli-soru-bankasi-32
